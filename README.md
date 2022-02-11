@@ -1,4 +1,4 @@
-## Olá, seja bem vindo! Esse aqui é o meu cafofo!
+## Aopa, bão!?
 
 Ta meio vazio... mas bem, quem nunca teve que lidar com as amarguras da vida, não é mesmo?
 
